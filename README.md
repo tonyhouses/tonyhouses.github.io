@@ -6,3 +6,4 @@
 - [https://chatgpt.com/share/75e72c1f-219d-4eed-aa17-02832247dc03](https://chatgpt.com/share/75e72c1f-219d-4eed-aa17-02832247dc03)
 - [https://gemini.google.com/share/b32630be2396](https://gemini.google.com/share/b32630be2396)
 - [https://poe.com/s/Ny2a81VtRr5Q5HtqcjE8](https://poe.com/s/Ny2a81VtRr5Q5HtqcjE8)
+- [https://poe.com/s/W0Zk978aWyR8LAn2Nnzo](https://poe.com/s/W0Zk978aWyR8LAn2Nnzo) 
