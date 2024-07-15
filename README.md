@@ -4,3 +4,4 @@
 - [https://medium.com/@TonyHouses](https://medium.com/@TonyHouses)
 - [https://www.reddit.com/user/BudgetRough4782/](https://www.reddit.com/user/BudgetRough4782/)
 - [https://chatgpt.com/share/75e72c1f-219d-4eed-aa17-02832247dc03](https://chatgpt.com/share/75e72c1f-219d-4eed-aa17-02832247dc03)
+- [https://gemini.google.com/share/b32630be2396](https://gemini.google.com/share/b32630be2396)
